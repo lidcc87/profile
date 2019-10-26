@@ -12,4 +12,4 @@
     
 **Experiência**  
  * Tutor eletrônico na Educacional Kroton S.A. pela Universidade Norte do Paraná (2017-2019).   
- * Atualmente no Programa de Residência do HUB SENAI. (2019-Atual) profile  
+ * Atualmente no Programa de Residência do HUB SENAI. (2019-Atual)
